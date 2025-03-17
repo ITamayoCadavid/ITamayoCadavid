@@ -29,7 +29,7 @@ Mi objetivo es crecer en el campo de **Data Science, Business Intelligence y Ana
 Si te interesa colaborar en proyectos o intercambiar ideas sobre **Data Science, Machine Learning o Big Data**, puedes contactarme a través de:  
 
 📩 **Email:** [isabelatamayo2@gmail.com]  
-🔗 **LinkedIn:** [Tu perfil de LinkedIn]  
+🔗 **LinkedIn:** [www.linkedin.com/in/isabela-tamayo-618b88356]  
 
 Siempre estoy buscando nuevos retos y oportunidades para seguir aprendiendo y creciendo 🚀  
 
